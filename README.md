@@ -2,4 +2,4 @@
 - 💻 Front-End site kodluyorum
 - 📫 Freelancer projelere açığım
 
-https://www.instagram.com/ahmetxaltun
+https://ahmetxaltun.blogspot.com
